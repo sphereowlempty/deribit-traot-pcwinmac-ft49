@@ -1,4 +1,4 @@
-# 
+# نخبة Deribit bot التداول وظائف إضافية for Mac OS | مميز Deribit bot التداول وظائف إضافية for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل المركزي and واجهة برمجة التطبيقات للتبادل اللامركزي — optimized for maximum performance.
 
 
 
